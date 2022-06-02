@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Himanshu..
 - 👀 I’m interested in automating the boring stuff in everyday life..
-- 🌱 I’m trying to learn everything
+- 🌱 I’m trying to learn everything..
 - 💞️ I’m looking forward to collaborate with everyone..
 - 📫 Can reach me on my mail himanshupatil245@gmail.com
 
